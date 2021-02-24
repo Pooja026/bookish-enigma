@@ -9,9 +9,15 @@ hell
 Everyone.............
 good evening.....
 
+
+thanks for coming..........
+
+bye  bye .................
+
+=====================================
 thanks
 
-welcome all
+
 
 ===============================
 
